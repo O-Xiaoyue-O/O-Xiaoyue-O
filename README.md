@@ -41,8 +41,7 @@ Recently, I have been looking for open source projects to contribute to, hoping 
 ## 📬 Let's Connect!
 
 Feel free to reach out or connect with me about tech, anime, or anything fun!
-
-> _“Striving to combine technology with creativity!”_
+Email: kuojohnson@outlook.com
 
 ---
 
