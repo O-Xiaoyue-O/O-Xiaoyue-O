@@ -40,7 +40,7 @@ Recently, I have been looking for open source projects to contribute to, hoping 
 
 ## 📬 Let's Connect!
 
-Feel free to reach out or connect with me about tech, anime, or anything fun!
+Feel free to reach out or connect with me about tech, anime, or anything fun!  
 Email: kuojohnson@outlook.com
 
 ---
